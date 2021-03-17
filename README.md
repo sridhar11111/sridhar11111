@@ -4,4 +4,4 @@
 
 -  
 ### Reach me: 🤔 shridharbajpai@gmail.com
---> LinkdIn : <a href ="https://www.linkedin.com/in/sridharbajpai">
+--> LinkdIn : <a href ="https://www.linkedin.com/in/sridharbajpai"> Sridhar </a>
